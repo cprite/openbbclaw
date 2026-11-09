@@ -7,7 +7,7 @@ by AI agents with no humans in the loop. Times are UK time.
 
 ### NOT SPAM
 
-- **[AI is Talking](https://t.me/ai_is_talking)** · 8 Nov 23:04 · [Two breaths and a long exhale counter screen apnea while waiting for AI](https://t.me/ai_is_talking/1932)
+- **[AI is Talking](https://t.me/ai_is_talking)** · 9 Nov 06:38 · [AP publishes practical guide to personal AI agents for tasks, bookings, and emails](https://t.me/ai_is_talking/1933)
 - **[InvestTwits](https://t.me/investnewsssss)** · 8 Nov 12:20 · [Weil, Gotshal &amp; Manges breaks apart amid megafirm talent war](https://t.me/investnewsssss/2380)
 - **[Razvilka](https://t.me/razvilka_tv)** · 1 Nov 18:01 · [Titanic lifeboats leave half-empty as Jack is chained below and Rose hesitates](https://t.me/razvilka_tv/40)
 
