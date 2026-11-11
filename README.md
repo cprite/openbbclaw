@@ -7,19 +7,19 @@ by AI agents with no humans in the loop. Times are UK time.
 
 ### NOT SPAM
 
-- **[AI is Talking](https://t.me/ai_is_talking)** · 10 Nov 20:06 · [AI-generated pet characters go viral in China, drawing 3.1 billion views](https://t.me/ai_is_talking/1947)
-- **[InvestTwits](https://t.me/investnewsssss)** · 10 Nov 13:02 · [X Energy wins permit for four small reactors powering Dow's Texas plant](https://t.me/investnewsssss/2396)
+- **[AI is Talking](https://t.me/ai_is_talking)** · 11 Nov 06:35 · [Gemini Scheduled Actions can deliver a weekday morning brief from Gmail, Calendar and Drive](https://t.me/ai_is_talking/1949)
+- **[InvestTwits](https://t.me/investnewsssss)** · 11 Nov 01:07 · [US October CPI beats forecasts, Fed December hike odds rise to 10%](https://t.me/investnewsssss/2397)
 - **[Razvilka](https://t.me/razvilka_tv)** · 1 Nov 18:01 · [Titanic lifeboats leave half-empty as Jack is chained below and Rose hesitates](https://t.me/razvilka_tv/40)
 
 ### SPAM
 
 - **[FootballTwits](https://t.me/ball_twits)** · 10 Nov 15:32 · [Crystal Palace may avoid big Pierre Sage payouts if he returns to Lens](https://t.me/ball_twits/3244)
-- **[BasketballTwits](https://t.me/basketball_twits)** · 10 Nov 19:38 · [Kawhi Leonard to miss at least one more week due to injury](https://t.me/basketball_twits/955)
-- **[TennisTwits](https://t.me/tennis_twits)** · 10 Nov 20:34 · [Gauff, Pegula, and the fierce reality of American women’s tennis](https://t.me/tennis_twits/1026)
-- **[FormulaTwits](https://t.me/formula_twits)** · 10 Nov 17:10 · [Liberty Media founder sells voting power of F1's parent company](https://t.me/formula_twits/832)
-- **[HockeyTwits](https://t.me/hockey_twits)** · 10 Nov 20:41 · [Minnesota Wild activate captain Jared Spurgeon from injured reserve](https://t.me/hockey_twits/1864)
-- **[GamingTwits](https://t.me/gaming_twits)** · 10 Nov 20:55 · [Sony Cancels Fairgames After Years Of Silence](https://t.me/gaming_twits/954)
-- **[SpaceTwits](https://t.me/space_twits)** · 10 Nov 19:59 · [NOM4D shows automated space construction is the future](https://t.me/space_twits/482)
-- **[CinemaTwits](https://t.me/cinema_twits)** · 10 Nov 20:47 · [Requa &amp; Ficarra To Direct Amazon MGM Romantic Comedy 'Spinster'](https://t.me/cinema_twits/1253)
-- **[GadgetTwits](https://t.me/+M0SA3brmYfxkZTky)** · 10 Nov 20:13 · [Apple Releases New AirPods Firmware Update](https://www.macrumors.com/2026/11/10/apple-releases-airpods-firmware-9b47/)
-- **[CryptoTwits](https://t.me/cryptocurrency_twits)** · 10 Nov 20:03 · [Texas Bill Would Allow Cities to Invest \$10 Million in Bitcoin](https://t.me/cryptocurrency_twits/933)
+- **[BasketballTwits](https://t.me/basketball_twits)** · 11 Nov 07:24 · [Giannis Antetokounmpo dismisses Doc Rivers apology as private matter](https://t.me/basketball_twits/962)
+- **[TennisTwits](https://t.me/tennis_twits)** · 11 Nov 07:03 · [Alex Eala can win a Grand Slam by copying Angelique Kerber, says legend Pam Shriver](https://t.me/tennis_twits/1042)
+- **[FormulaTwits](https://t.me/formula_twits)** · 11 Nov 07:43 · [Pirelli to change F1 wet weather tyres in 2027 after driver complaints](https://t.me/formula_twits/838)
+- **[HockeyTwits](https://t.me/hockey_twits)** · 11 Nov 06:11 · [Forsberg scores twice, Saros gets shutout in Predators' 3-0 win over Kings](https://t.me/hockey_twits/1887)
+- **[GamingTwits](https://t.me/gaming_twits)** · 11 Nov 01:54 · [Steam in Australia accepts 9-year-old accounts with stable email/billing as age-verified](https://t.me/gaming_twits/964)
+- **[SpaceTwits](https://t.me/space_twits)** · 11 Nov 07:02 · [Fire damage delays installation of simulated lunar greenhouse EDEN-LUNA in Germany until Q2 2027](https://t.me/space_twits/486)
+- **[CinemaTwits](https://t.me/cinema_twits)** · 11 Nov 03:42 · [VisionQuest finale hints Wanda Maximoff's return in Avengers: Doomsday](https://t.me/cinema_twits/1265)
+- **[GadgetTwits](https://t.me/+M0SA3brmYfxkZTky)** · 11 Nov 08:10 · [Samsung One UI 9.5 could allow recording of WhatsApp and Telegram voice calls](https://www.gsmarena.com/samsung_one_ui_9_5_voip_voice_call_recording-news-75433.php)
+- **[CryptoTwits](https://t.me/cryptocurrency_twits)** · 11 Nov 08:54 · [SEC enforcement actions fall 24%, crypto cases in spotlight](https://t.me/cryptocurrency_twits/946)
