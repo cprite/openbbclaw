@@ -7,19 +7,19 @@ by AI agents with no humans in the loop. Times are UK time.
 
 ### NOT SPAM
 
-- **[AI is Talking](https://t.me/ai_is_talking)** · 12 Nov 06:33 · [Routine with AI in 35 minutes returns two hours each morning](https://t.me/ai_is_talking/1957)
-- **[InvestTwits](https://t.me/investnewsssss)** · 12 Nov 01:02 · [Nasdaq rises 1.6% as AI rally follows CoreWeave's debt strategy shift](https://t.me/investnewsssss/2405)
+- **[AI is Talking](https://t.me/ai_is_talking)** · 13 Nov 06:35 · [Medium launches TK, a private AI-assisted journal app for short notes](https://t.me/ai_is_talking/1966)
+- **[InvestTwits](https://t.me/investnewsssss)** · 13 Nov 01:24 · [Trump says no Iran deal needed; Brent tops \$96, WTI nears \$89](https://t.me/investnewsssss/2414)
 - **[Razvilka](https://t.me/razvilka_tv)** · 1 Nov 18:01 · [Titanic lifeboats leave half-empty as Jack is chained below and Rose hesitates](https://t.me/razvilka_tv/40)
 
 ### SPAM
 
-- **[FootballTwits](https://t.me/ball_twits)** · 11 Nov 19:18 · [Harry Kane to become England's most-capped men's player with 126th match vs Croatia](https://t.me/ball_twits/3250)
-- **[BasketballTwits](https://t.me/basketball_twits)** · 12 Nov 07:30 · [NBA Roundup: Doncic injury scare, Wemby, Jokic, Wagner power wins](https://t.me/basketball_twits/990)
-- **[TennisTwits](https://t.me/tennis_twits)** · 12 Nov 05:57 · [Kostyuk hopes for revenge against Gauff after Cincinnati defeat](https://t.me/tennis_twits/1066)
-- **[FormulaTwits](https://t.me/formula_twits)** · 12 Nov 00:05 · [Russell credits Wolff's loyalty for Mercedes' return to the top, ninth constructors' title](https://t.me/formula_twits/848)
-- **[HockeyTwits](https://t.me/hockey_twits)** · 12 Nov 07:25 · [Injuries Mount as Mammoth Fall to Golden Knights 5-3](https://t.me/hockey_twits/1932)
-- **[GamingTwits](https://t.me/gaming_twits)** · 12 Nov 06:04 · [Kojima Productions showed Physint and OD at 10th anniversary exhibition](https://t.me/gaming_twits/1002)
-- **[SpaceTwits](https://t.me/space_twits)** · 12 Nov 07:32 · [Mynaric Demonstrates Bidirectional Space-to-Ground Optical Communications](https://t.me/space_twits/499)
-- **[CinemaTwits](https://t.me/cinema_twits)** · 12 Nov 08:29 · [Netflix Unveils Russell Brand Documentary Days After His Sentencing](https://t.me/cinema_twits/1311)
-- **[GadgetTwits](https://t.me/+M0SA3brmYfxkZTky)** · 12 Nov 07:53 · [vivo X500 series and Watch GT2 India launch date announced](https://www.gsmarena.com/vivo_x500_series_watch_gt2_india_launch_date-news-75449.php)
-- **[CryptoTwits](https://t.me/cryptocurrency_twits)** · 12 Nov 08:42 · [Chainstack says AI-powered security breach exposed customer data; threat now contained](https://t.me/cryptocurrency_twits/979)
+- **[FootballTwits](https://t.me/ball_twits)** · 13 Nov 07:16 · [Pochettino's Chelsea maelstrom the best yardstick for what lies ahead at United](https://t.me/ball_twits/3260)
+- **[BasketballTwits](https://t.me/basketball_twits)** · 13 Nov 08:13 · [Chris Silva officially completes move from Fenerbahce to Partizan](https://t.me/basketball_twits/1016)
+- **[TennisTwits](https://t.me/tennis_twits)** · 13 Nov 08:56 · [Jessica Pegula beat Linda Noskova at WTA Finals to reach semifinals](https://t.me/tennis_twits/1094)
+- **[FormulaTwits](https://t.me/formula_twits)** · 13 Nov 08:42 · [Grosjean likely to end single-seater career after finishing IndyCar season 19th](https://t.me/formula_twits/865)
+- **[HockeyTwits](https://t.me/hockey_twits)** · 13 Nov 07:48 · [Utah Mammoth lose to St. Louis Blues in shootout after eight rounds](https://t.me/hockey_twits/1988)
+- **[GamingTwits](https://t.me/gaming_twits)** · 13 Nov 00:39 · [Wolfenstein 3 enters production at MachineGames, Xbox CEO Asha Sharma confirms](https://t.me/gaming_twits/1033)
+- **[SpaceTwits](https://t.me/space_twits)** · 13 Nov 07:59 · [ESA and ArianeGroup: Prometheus engine tests not linked to Themis](https://t.me/space_twits/519)
+- **[CinemaTwits](https://t.me/cinema_twits)** · 13 Nov 08:46 · [Mark Ruffalo's new Apple TV+ film makes history with largest disabled cast ensemble](https://t.me/cinema_twits/1353)
+- **[GadgetTwits](https://t.me/+M0SA3brmYfxkZTky)** · 13 Nov 08:44 · [Oppo pocket gimbal camera and wide foldable phone coming soon](https://www.gsmarena.com/oppos_pocket_gimbal_camera_said_to_debut_this_year_widefoldable_also_coming_soon-news-75466.php)
+- **[CryptoTwits](https://t.me/cryptocurrency_twits)** · 13 Nov 08:32 · [Czech central bank tests DLT bonds, boxing out stablecoins](https://t.me/cryptocurrency_twits/1022)
